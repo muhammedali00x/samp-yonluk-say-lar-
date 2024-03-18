@@ -1,1 +1,1 @@
-# samp-yonluk-say-lar-
+# sampıyonluk-sayıları
